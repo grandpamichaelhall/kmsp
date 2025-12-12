@@ -5,6 +5,5 @@
 </p>
 
 <p align="center">
-  <img src="https://purchase-software.com/wp-content/uploads/2020/05/Adobe-Acrobat-Pro-lifetime-activation.jpg
-" height="auto"/>
+  <img src="https://purchase-software.com/wp-content/uploads/2020/05/Adobe-Acrobat-Pro-lifetime-activation.jpg" height="auto"/>
 </p>
